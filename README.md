@@ -1,1 +1,1 @@
-[# qftdew.github.io](https://research-on-ai.com/)
+https://research-on-ai.com/
